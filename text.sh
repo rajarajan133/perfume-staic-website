@@ -1,0 +1,1 @@
+Many aromatic chemicals are used in perfumes, including: potent, pleasant benzyl alcohol; uniquely lemony limonene; volatile ethyl alcohol; kashmirin, which provides a woody, musky dry down; ultra, a hot, warm, metallic chemical based on an aldehydic molecule; sweet, feminine acetone; ionones, which are known for their ..
